@@ -1,0 +1,2 @@
+# Manager-
+Full control
